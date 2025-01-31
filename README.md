@@ -1,2 +1,2 @@
-# 👋 Hello everyone, Iam Omar Mohamed!
+# 👋 Hello everyone, I am Omar Mohamed!
 
